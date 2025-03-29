@@ -1,16 +1,15 @@
-## Hi there 👋
+黑料668su黑料传送门app黑料不打烊2022最新地址是多少
 
-<!--
-**dfjel/dfjel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ 意思很明确……你们不是说自己的培训时间短吗？他们的更短！
+
+    “另外在造价方面，虽然使用全套的自动化料理机，需要一次性的大量投入资金，但是之后能够节省多少人力支出，我想应该不用我来算这笔账……”
+
+    薙切蓟这时打断道：“呵呵，刘昴星同学，你该不会想说……这些算是‘料理’吧？在我看来，这只是饲料生产机而已！难道在座各位希望，以后自己只能尝到这样的‘料理’，或者在自己的店里，供应这种东西？”
+
+    果然，不少人闻言都皱起了眉头……雅典娜智能料理研究所，的确已经有了一定程度的研究成果，但是仅仅这种程度，还无法令人满意！
+
+    “的确，现在这种技术还不成熟，但是在科技迅速发展的今天，五年后、或者十年后，甚至……二十年后呢？”刘昴星看着薙切蓟说道。
